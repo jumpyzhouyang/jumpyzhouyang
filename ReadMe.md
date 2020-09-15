@@ -30,4 +30,4 @@
 正如我悄悄的来；
 我挥一挥衣袖，
 不带走一片云彩。**
-[引用]（https://hanyu.baidu.com/shici/detail?pid=bfc7fb8766eaebe2efeb3f0c7b8083c8&from=kg0“百度”）
+[引用]（https://hanyu.baidu.com/shici/detail?pid=bfc7fb8766eaebe2efeb3f0c7b8083c8&from=kg0 “百度”）
